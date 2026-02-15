@@ -1,7 +1,7 @@
 # 시희지몽(尸姬之梦) 한패
 기열찐빠 시희지몽 한패
 
-적용 방법: (https://gall.dcinside.com/m/indiegame/330034)
+적용 방법 ~ 문의 등등: (https://gall.dcinside.com/m/indiegame/330034)
 
 **사용 폰트**
 1. 안성탕면 서체의 지적 재산권은 농심(www.nongshim.com)에 있습니다.
