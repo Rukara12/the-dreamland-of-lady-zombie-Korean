@@ -1,4 +1,4 @@
-# -
+# 시희지몽(尸姬之梦) 한패
 기열찐빠 시희지몽 한패
 
 적용 방법: (https://gall.dcinside.com/m/indiegame/330034)
